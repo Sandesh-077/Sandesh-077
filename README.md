@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sandesh
+- 👀 Do you like Iron man? I do!
+- 😄 Pronouns: He/him
+- ⚡ "Innovation is not just about light bulb." -Sandesh Singh
